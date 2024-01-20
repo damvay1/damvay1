@@ -1,16 +1,17 @@
-### Hi there 👋
+### Kho sỉ đầm váy thiết kế Candyshop
 
-<!--
-**damvay1/damvay1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+Chuyên sỉ hàng thiết kế các mẫu đầm, set, áo, váy, hàng đẹp giá tốt KHO SỈ Chất lượng cực đẹp với giá cả hợp lý cho mọi chị em thể hiện phong cách của mình.
 
-Here are some ideas to get you started:
+- Địa chỉ: Số 5, Đường Nguyễn Trãi, phường Liên Bảo, thành phố Vĩnh Yên, tỉnh Vĩnh Phúc
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- SĐT: 0211 361 6618
+
+- Website: https://damvay.com.vn/
+
+https://twitter.com/damvay1
+
+https://www.pinterest.com/damvay1/
+
+https://vimeo.com/damvay1
+
+https://www.youtube.com/channel/UC_wKGZWe_6XARiuiNiuknhw
